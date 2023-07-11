@@ -16,13 +16,15 @@
 
 
 # In Moblie
-![image](https://github.com/ShivanshuTripathi02/Delicious/assets/111652634/abf14988-6a12-4ca5-85ef-6012cb440873)<br/>
-![image](https://github.com/ShivanshuTripathi02/Delicious/assets/111652634/644957d4-80d7-40ee-8ae4-5132f2e6b576)<br/>
+![image](https://github.com/ShivanshuTripathi02/Delicious/assets/111652634/ba9c4572-27bf-4721-80fb-dc9b2226ad52)
+<br/>
+![image](https://github.com/ShivanshuTripathi02/Delicious/assets/111652634/633c3f6b-b61d-4517-aba6-c8e34c279779)
+<br/>
 
 #catagory
 
 ![image](https://github.com/ShivanshuTripathi02/Delicious/assets/111652634/d09929e8-c4fc-4c40-b1b3-c154f42eb29c)<br/>
-![image](https://github.com/ShivanshuTripathi02/Delicious/assets/111652634/a5b9dc51-d9ea-463a-b0bd-a9968d223cd8)<br/>
+![image](https://github.com/ShivanshuTripathi02/Delicious/assets/111652634/a5b9dc51-d9ea-463a-b0bd-a9968d223cd8)<br/><br/><br/>
 
 
 #about the food<br/>
